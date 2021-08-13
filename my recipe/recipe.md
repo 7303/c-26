@@ -1,0 +1,1 @@
+Cleaning,Roasting,Shell Removal,Nibs are ground,Cocoa is separated from Cocoa Butter,Other ingredients are added to the Chocolate Liquor,Conching machines knead the Chocolate Paste,Chocolate is Tempered by Heating, Cooling & Reheating and Liquid Chocolate is Temporary Stored.
